@@ -10,5 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about my thesis project
 - 📫 How to reach me: kareen.weche@carleton.ca
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm a mom of 5 kids aged 18 to 24 :)
--->
+- ⚡ Fun fact: I'm a mom of 5 kids aged 18 to 24 :)>
